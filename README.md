@@ -1,1 +1,1 @@
-# Nanasesaki.github.io
+Map of My Favourite Destinations
